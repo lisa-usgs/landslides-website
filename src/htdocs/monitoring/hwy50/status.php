@@ -59,7 +59,7 @@
   During the wet winter months of 2000, the slide moved a few centimeters. <a href="images/RCC99_00.gif">1999-2000 Summary Graph.</a>
 </p>
 <p>
-  Between late January and early May 1999, downslope movement of about 30 centimeters (cm) occurred at this site near the center of the slide. <a href="images/RCC98_99.gif">1998-99 Summary Graph.</a> Downslope displacement also occurred in the upper and lower parts of this slide and ranged between about 20 and 120 cm.
+  Bet late January and early May 1999, downslope movement of about 30 centimeters (cm) occurred at this site near the center of the slide. <a href="images/RCC98_99.gif">1998-99 Summary Graph.</a> Downslope displacement also occurred in the upper and lower parts of this slide and ranged between about 20 and 120 cm.
 </p>
 <p>
   This slide also moved during the wet El Ni&ntilde;o-influenced winter. Between mid-March and late-June 1998, cumulative displacement near the center of the slide was about 65 cm. <a href="images/RCC97_98.gif">1997-98 Summary Graph.</a> Between late January and the end of June 1998, cumulative downslope movement at the toe of this slide was greater than 560 cm (18.4 feet).
